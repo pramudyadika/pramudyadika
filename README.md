@@ -8,7 +8,7 @@
 - 🎲 My fav quote is "_Hakuna Matata_" which means "No Worries"  
 - ⚡ Fun fact: If you put text "fun fact" in the first sentences,  
      people will read all of your text and still searching what is  
-     fun about this. Don't you?
+     fun about it. Don't you?
 - 📫 Hit me up at my [LinkedIn](https://www.linkedin.com/in/pramudya-kusuma-hardika-284b481b7/) or [Instagram](http://instagram.com/xydik_)
 
 Thanks!  
